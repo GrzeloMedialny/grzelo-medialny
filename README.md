@@ -15,3 +15,4 @@ Warszawa
 -------------------------
 
 wg erg erg qeg eg eg e
+erg qerg weg weg weg we 
