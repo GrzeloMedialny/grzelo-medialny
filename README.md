@@ -14,3 +14,4 @@ Warszawa
 
 rt h5e6yh 56 567u 57 u547
 wSD Q  EWR   Q23FDR   23F  23R   234RF   244RF    234F   243RF   243RF   243RF   2
+ER   R   Q23R   Q3   2Q3DF   Q23D   23   3R3
